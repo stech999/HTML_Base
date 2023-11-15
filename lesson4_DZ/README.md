@@ -11,3 +11,4 @@ https://www.figma.com/file/mnLY69cYE5cqWM5w6n5hXx/Seo-%26-Digital-Marketing-Land
 Немного про шрифт Gilroy:
 https://andryushkin.ru/fonts/gilroy/
 https://habr.com/ru/post/539680/
+
